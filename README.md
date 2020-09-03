@@ -14,6 +14,6 @@
 
 **Breakfast**: Elixir, Oats and Cereal, Almonds, Walnuts, Cashews (Felt energetic)
 
-**Lunch**: Yellow Moong Dal with multi-grain roti, One slice of pizza, Pistachios (Felt sleepy)
+**Lunch**: Banana, Yellow Moong Dal with multi-grain roti, One slice of pizza, Pistachios (Felt sleepy)
 
 **Dinner**: Poha (Flattened rice flakes), Yogurt, Biscuits, Shrooms (Felt energetic)
