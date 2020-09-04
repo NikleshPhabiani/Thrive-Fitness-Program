@@ -17,3 +17,12 @@
 **Lunch**: Banana, Yellow Moong Dal with multi-grain roti, One slice of pizza, Pistachios (Felt sleepy)
 
 **Dinner**: Poha (Flattened rice flakes), Yogurt, Biscuits, Shrooms (Felt energetic)
+
+## 09/03/2020
+**Workout**: Non-running day stretches
+
+**Breakfast**: Elixir, Apple, Milk, Almonds, Walnuts, Cashews, Banana (Very active and energetic). Even biking to work was more relaxing.
+
+**Lunch**: Poha (Flattened rice flakes), Orange, Pistachios (Felt energetic)
+
+**Dinner**: Shrooms, Yellow Moong Dal with multi-grain roti (Light and enrgetic)
