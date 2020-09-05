@@ -26,3 +26,12 @@
 **Lunch**: Poha (Flattened rice flakes), Orange, Pistachios (Felt energetic)
 
 **Dinner**: Shrooms, Yellow Moong Dal with multi-grain roti (Light and enrgetic)
+
+## 09/04/2020
+**Workout**: Non-running day stretches
+
+**Breakfast**: Elixir, Almonds, Walnuts, Cashews (A bit wobbly for a while. Energetic overall).
+
+**Lunch**: Yellow Moong Dal with roti, Milk (Felt energetic)
+
+**Dinner**: Shrooms, Veg Biryani (Energetic).
