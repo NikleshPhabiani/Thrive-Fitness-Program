@@ -34,4 +34,13 @@
 
 **Lunch**: Yellow Moong Dal with roti, Milk (Felt energetic)
 
-**Dinner**: Shrooms, Veg Biryani (Energetic).
+**Dinner**: Shrooms, Veg Biryani (Gas and indigestion).
+
+## 09/05/2020
+**Workout**: 8 miles biking
+
+**Brunch**: Elixir, Apple, Vegetable Pulao, Almonds, Cashews (Energetic)
+
+**Evening Snack**: Milk
+
+**Dinner**: Yellow Moong Dal with multi-grain roti, Yogurt, Shrooms (Energetic)
