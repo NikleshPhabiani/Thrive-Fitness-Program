@@ -44,3 +44,12 @@
 **Evening Snack**: Milk
 
 **Dinner**: Yellow Moong Dal with multi-grain roti, Yogurt, Shrooms (Energetic)
+
+## 09/06/2020
+**Workout**: 8.5 miles hike to Montara Mountain
+
+**Breakfast**: Almonds, Cashews, Apple, Banana (Active and energetic) - Did hike at a nice pace that too in heat.
+
+**Lunch**: Elixir, Veg Pulao, Milk, Yogurt, Carrot juice (Light and energetic)
+
+**Dinner**: Eggplant and Potato with multi-grain roti, Shrooms, Raita, Oranges (Felt good with digestion)
