@@ -53,3 +53,12 @@
 **Lunch**: Elixir, Veg Pulao, Milk, Yogurt, Carrot juice (Light and energetic)
 
 **Dinner**: Eggplant and Potato with multi-grain roti, Shrooms, Raita, Oranges (Felt good with digestion)
+
+## 09/07/2020
+**Workout**: Non-running day stretches (Amazing and quick)
+
+**Breakfast**: Elixir, Banana, Apple, Papaya, Avocado (Energetic)
+
+**Lunch**: Vegetable Pulao, Almonds, Walnuts, Cashews, Milk, Yogurt (Active in the start. A bit sleepy in the evening)
+
+**Dinner**: Eggplant and Potato with roti, Yogurt, Shrooms.
