@@ -62,3 +62,14 @@
 **Lunch**: Vegetable Pulao, Almonds, Walnuts, Cashews, Milk, Yogurt (Active in the start. A bit sleepy in the evening)
 
 **Dinner**: Eggplant and Potato with roti, Yogurt, Shrooms.
+
+## 09/08/2020
+**Workout**: Pre-run stretch, Running (4 miles), Post-run stretch, HIIT
+
+**Breakfast**: Elixir, Apple, Papaya, Almonds, Cashews (Active and energetic)
+
+**Lunch**: Okra with roti (Energetic)
+
+**Evening snack**: Milk, Pistachios (A bit heavy)
+
+**Dinner**: Karela with roti, Spinach soup, Yellow Dal, Shrooms (Energetic with good digestion)
