@@ -81,4 +81,6 @@
 
 **Lunch**: Eggplant and Potato with roti, 2 Oranges, Milk (Very sleepy)
 
+**Evening snack**: Pistachios (A bit heavy post this)
+
 **Dinner**: Okra with roti, Yogurt (Good digestion and active)
