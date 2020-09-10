@@ -73,3 +73,12 @@
 **Evening snack**: Milk, Pistachios (A bit heavy)
 
 **Dinner**: Karela with roti, Spinach soup, Yellow Dal, Shrooms (Energetic with good digestion)
+
+## 09/09/2020
+**Workout**: Non-running day stretches
+
+**Breakfast**: Elixir, Shrooms, Banana, Avocado, Apple, Papaya, Almonds, Walnuts, Cashews, Bel Vita Cinnamon + Brown Sugar Biscuits (Active and Energetic with good digestion)
+
+**Lunch**: Eggplant and Potato with roti, 2 Oranges, Milk (Very sleepy)
+
+**Dinner**: Okra with roti, Yogurt (Good digestion and active)
