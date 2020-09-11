@@ -75,7 +75,7 @@
 **Dinner**: Karela with roti, Spinach soup, Yellow Dal, Shrooms (Energetic with good digestion)
 
 ## 09/09/2020
-**Workout**: Non-running day stretches
+**Workout**: Non-running day stretches, 8-mile bike
 
 **Breakfast**: Elixir, Shrooms, Banana, Avocado, Apple, Papaya, Almonds, Walnuts, Cashews, Bel Vita Cinnamon + Brown Sugar Biscuits (Active and Energetic with good digestion)
 
@@ -84,3 +84,13 @@
 **Evening snack**: Pistachios (A bit heavy post this)
 
 **Dinner**: Okra with roti, Yogurt (Good digestion and active)
+
+## 09/10/2020
+**Workout**: Pre-run stretches, Run (4 miles), Post-run stretches
+
+**Breakfast**: Elixir, Apple, Papaya, Avocado, Banana, Almonds, Walnuts, Cashews, Milk (Active and energetic)
+
+**Lunch**: Okra with roti, Shrooms (Energetic)
+
+**Dinner**: Pav Bhaji, 1 Orange (A bit heavy with gas)
+
