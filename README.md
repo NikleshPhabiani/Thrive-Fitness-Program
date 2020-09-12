@@ -94,3 +94,12 @@
 
 **Dinner**: Pav Bhaji, 1 Orange (A bit heavy with gas)
 
+## 09/11/2020
+**Workout**: BW movements
+
+**Breakfast**: Elixir, Apple, Papaya, Banana, Avocado, Almonds, Walnuts, Cashews (Light, active, energetic)
+
+**Lunch**: Pav Bhaji, Ice-cream (Energetic)
+
+**Dinner**: Vegetable Wrap, Shrooms (Active)
+
