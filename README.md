@@ -103,3 +103,14 @@
 
 **Dinner**: Vegetable Wrap, Shrooms (Active)
 
+## 09/12/2020
+**Workout**: BW movements
+
+**Breakfast**: Elixir, Almonds, Walnuts, Cashews
+
+**Lunch**: Milk, Papaya, Vegetable Wrap, Yogurt, Carrot Juice (Active and Energetic)
+
+**Evening Snack** Shrooms
+
+**Dinner**: Pav Bhaji, Avocado, Bel Vita biscuits (Light and active)
+
