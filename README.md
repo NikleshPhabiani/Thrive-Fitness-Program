@@ -106,7 +106,7 @@
 ## 09/12/2020
 **Workout**: BW movements
 
-**Breakfast**: Elixir, Almonds, Walnuts, Cashews
+**Breakfast**: Elixir, Almonds, Walnuts, Cashews (Active, Focused)
 
 **Lunch**: Milk, Papaya, Vegetable Wrap, Yogurt, Carrot Juice (Active and Energetic)
 
@@ -114,3 +114,11 @@
 
 **Dinner**: Pav Bhaji, Avocado, Bel Vita biscuits (Light and active)
 
+## 09/13/2020
+**Workout**: Pre-run stretches, Run (5 miles), Post-run stretches
+
+**Breakfast**: Elixir, Almonds, Walnuts, Cashews, Apple, Avocado, Milk (Energetic, Focused, Active)
+
+**Lunch**: Pav Bhaji, Yogurt, Bel Vita Biscuits (A bit heavy, and sleepy)
+
+**Dinner**: Spinach Paneer with roti (Some gas release)
