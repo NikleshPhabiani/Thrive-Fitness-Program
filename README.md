@@ -122,3 +122,23 @@
 **Lunch**: Pav Bhaji, Yogurt, Bel Vita Biscuits (A bit heavy, and sleepy)
 
 **Dinner**: Spinach Paneer with roti, Shrooms (Some gas)
+
+## 09/14/2020:
+**Workout**: BW movements
+
+**Breakfast**: Elixir, Almonds, Walnuts, Cashews, Banana, Apple, Avocado (Active, Focused, Energetic)
+
+**Lunch**: Spinach Paneer with roti, Oat with Dark Chocolate Cake Piece (Active, Energetic)
+
+**Evening Snack**: Shrooms with Milk (Light, Active)
+
+**Dinner**: Spinach Paneer with roti, Peanut Butter
+
+## 09/15/2020
+**Workout**: HIIT 
+
+**Breakfast** Banana, Apple, Avocado, Almonds, Oat and Dark Chocolate Cake (Active, Energetic, Focused, Light, Good digestion)
+
+**Lunch**: Ike's Sandwich (Steve Jobs: Breaded Eggplant, Sordough bread, Jalepenos, Green Pesto, Pickles), Oat and Dark Chocolate Cake (Good digestion, Energetic)
+
+**Dinner**: Elixir, Shrooms, Brocolli with roti, Yogurt, Peanut Butter (Good digestion, Active) - Elixir and Shrooms should have been in the morning. However, didn't want to miss on it, and thus had it.
