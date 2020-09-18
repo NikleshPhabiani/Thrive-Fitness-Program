@@ -142,3 +142,12 @@
 **Lunch**: Ike's Sandwich (Steve Jobs: Breaded Eggplant, Sordough bread, Jalepenos, Green Pesto, Pickles), Oat and Dark Chocolate Cake (Good digestion, Energetic)
 
 **Dinner**: Elixir, Shrooms, Brocolli with roti, Yogurt, Peanut Butter (Good digestion, Active) - Elixir and Shrooms should have been in the morning. However, didn't want to miss on it, and thus had it.
+
+## 09/17/2020
+**Workout**: Pre-run stretches, Run (3 miles), Post-run stretch
+
+**Breakfast**: Elixir, Oats with milk, Banana, 2 spoons of Peanut Butter (Focused, Active, Energetic)
+
+**Lunch**: Mix Veg (Cauliflower, Potato, Cottage Cheese) with roti, Yogurt, Bel Vita Biscuits (Energetic, Good digestion)
+
+**Dinner**: Shrooms, Yellow Moong Dal with rice, Avocado (Active with good digestion)
