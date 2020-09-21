@@ -159,7 +159,7 @@
 
 **Lunch**: Eggplant and Potato with roti, Milk, Yogurt (Energetic, Good digestion)
 
-**Dinner**: Fenugreek with Cottage Cheese in Yogurt base with roti
+**Dinner**: Shrooms, Fenugreek with Cottage Cheese in Yogurt base with roti
 
 ## 09/20/2020
 **Workout**: Hike (Around 7 to 8 miles), Post-run stretches
