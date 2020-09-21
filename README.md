@@ -151,3 +151,21 @@
 **Lunch**: Mix Veg (Cauliflower, Potato, Cottage Cheese) with roti, Yogurt, Bel Vita Biscuits (Energetic, Good digestion)
 
 **Dinner**: Shrooms, Yellow Moong Dal with rice, Avocado (Active with good digestion)
+
+## 09/19/2020
+**Workout**: Hike (8 miles)
+
+**Breakfast**: Elixir, Banana, Almonds (Active, Energetic)
+
+**Lunch**: Eggplant and Potato with roti, Milk, Yogurt (Energetic, Good digestion)
+
+**Dinner**: Fenugreek with Cottage Cheese in Yogurt base with roti
+
+## 09/20/2020
+**Workout**: Hike (Around 7 to 8 miles), Post-run stretches
+
+**Breakfast**: Elixir, Banana, Almonds (Active, Energetic)
+
+**Lunch**: Walnuts, Fenugreek with Cottage Cheese in Yogurt base with roti, Yogurt, Roasted peanuts (Active, Energetic)
+
+**Dinner**: Yellow moong dal with multi-grain roti, Carrot juice (Good digestion)
