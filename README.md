@@ -169,3 +169,14 @@
 **Lunch**: Walnuts, Fenugreek with Cottage Cheese in Yogurt base with roti, Yogurt, Roasted peanuts (Active, Energetic)
 
 **Dinner**: Yellow moong dal with multi-grain roti, Carrot juice (Good digestion)
+
+## 09/22/2020
+**Workout**: 45 minutes HIIT
+
+**Breakfast**: Elixir, Banana, Apple, Avocado, Papaya, Peanut Butter (Light, Active, Energetic, Focused, Good digestion)
+
+**Lunch**: Dal Makhani, Spinach Paneer with Naan (Active, Energetic, A little wobbly in stomach)
+
+**Evening Snack**: Shrooms
+
+**Dinner**: Black bean and Poblana Faultas (Active, Energetic, Good digestion)
