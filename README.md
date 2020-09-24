@@ -180,3 +180,14 @@
 **Evening Snack**: Shrooms
 
 **Dinner**: Black bean and Poblana Faultas (Active, Energetic, Good digestion)
+
+## 09/23/2020
+**Workout**: BW movements
+
+**Breakfast**: Elixir, Banana, Apple, Avocado, Papaya, Milk, Peanut Butter (Light, Active, Energetic, Focused, A bit wobbly)
+
+**Lunch**: Mixed vegetable with multi-grain roti (Light, Active, Energetic, Focused)
+
+**Evening Snack**: Nuts, Shrooms
+
+**Dinner**: Dal Makhani with Naan, 2 oranges (Light, Active, Energetic)
