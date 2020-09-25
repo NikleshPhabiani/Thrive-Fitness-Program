@@ -191,3 +191,12 @@
 **Evening Snack**: Nuts, Shrooms
 
 **Dinner**: Dal Makhani with Naan, 2 oranges (Light, Active, Energetic)
+
+## 09/24/2020
+**Workout**: Evening Yoga (Office organized)
+
+**Breakfast**: Almonds, Walnuts, Protein Shake (Avocado, Banana, Ground mix of Hemp, Chia, Flax with Coconut, Milk, Water, Protein) (Active, Energetic)
+
+**Lunch**: Palak Paneer with Naan, Yogurt (A bit sleepy and low on energy)
+
+**Dinner**: Shrooms, Okra and Paneer with multi-grain roti (Active, Good digestion)
