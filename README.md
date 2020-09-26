@@ -200,3 +200,14 @@
 **Lunch**: Palak Paneer with Naan, Yogurt (A bit sleepy and low on energy)
 
 **Dinner**: Shrooms, Okra and Paneer with multi-grain roti (Active, Good digestion)
+
+## 09/25/2020
+**Workout**: BW movements
+
+**Breakfast**: Elixir, Apple, Papaya, Protein Shake (A bit wobbly on the start but then all good. Active, Energetic, Full)
+
+**Lunch**: Palak Paneer with multi-grain roti (A bit sleepy)
+
+**Evening Snack**: Whiskey tasting and Ice-cream
+
+**Dinner**: Shrooms, Okra and Paneer with roti, Peanut butter (Active, Good digestion)
