@@ -211,3 +211,10 @@
 **Evening Snack**: Whiskey tasting and Ice-cream
 
 **Dinner**: Shrooms, Okra and Paneer with roti, Peanut butter (Active, Good digestion)
+
+## 09/26/2020
+**Workout**: Pre-run stretches, Run (3.4 miles), Swim (15 minutes), Post-run stretches
+
+**Brunch**: Elixir, Papaya, Protein Shake, Tindora with roti, Yogurt, Peanut butter (Active, Energetic)
+
+**Dinner**: Shrooms, Brocolli and Tindora with roti, Milk (Good digestion)
