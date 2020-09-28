@@ -218,3 +218,10 @@
 **Brunch**: Elixir, Papaya, Protein Shake, Tindora with roti, Yogurt, Peanut butter (Active, Energetic)
 
 **Dinner**: Shrooms, Brocolli and Tindora with roti, Milk (Good digestion)
+
+## 09/27/2020
+**Workout**: BW movements
+
+**Brunch**: Elixir, Almonds, Walnuts, Papaya, Protein Shake, Yellow Moong Dal with Rice (Active)
+
+**Dinner**: Shrooms, Crispy Chickpea Tabbouleh, Oranges, Watermelon (Active, Focused, Good digestion)
