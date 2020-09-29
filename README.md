@@ -225,3 +225,29 @@
 **Brunch**: Elixir, Almonds, Walnuts, Papaya, Protein Shake, Yellow Moong Dal with Rice (Active)
 
 **Dinner**: Shrooms, Crispy Chickpea Tabbouleh, Oranges, Watermelon (Active, Focused, Good digestion)
+
+## 09/28/2020 (Week 5 Meeting Notes)
+1. How can I thrive in areas where I am doing ok?
+2. Go through typical workday. See the times where I have to be more attentive? When can I focus on deep work? Find time to be in deep work phase. Find at least 2 hours where I am w/o messages, emails, etc.
+3. Talk to family with focus. Set up a time in calendar, and try to wrap work before this.
+4. What you measure matters.
+5. How you feel, and how you associate an action with it.
+6. For mental strength, focus on doing something challenging.
+7. Be specific in intention setting. Distinguish.
+8. Have a day planner.
+9. Start using Trello.
+10. Focused energy is finite. So track by writing things down. Simplify things.
+11. Get clear with how you will do your independent task. Audit your day. We need to optimize. How and where you are spending your time. Every time I work more, I am choosing it over family and passion project (It is me choosing).
+12. What are big things for October, and for this quarter. Everything else is secondary, and a distraction.
+13. Set priority, and clarity.
+
+## 09/28/2020
+**Workout**: BW movements
+
+**Breakfast**: Elixir, Avocado, Papaya, Watermelon, Protein Shake (Active, Energetic, Focused)
+
+**Lunch**: Crispy Chickpea Tabbouleh, Ice-cream cake (Good digestion, A bit heavy)
+
+**Evening Snack**: Shrooms (Active, Energetic)
+
+**Dinner**: Yellow Moong Dal with Rice, Yogurt (Good digestion)
