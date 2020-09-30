@@ -251,3 +251,13 @@
 **Evening Snack**: Shrooms (Active, Energetic)
 
 **Dinner**: Yellow Moong Dal with Rice, Yogurt (Good digestion)
+
+## 09/29/2020
+**Workout** Pre-run stretches, Run (4 miles), Post-run stretches, 45 minutes HIIT (Office organized)
+
+**Breakfast**: Elixir, Almonds, Watermelon, Papaya, Protein Shake (Active, Energetic)
+
+**Lunch**: Shrooms, Navratan Korma, Mix Veg with Naan, Gobi 65 (Very sleepy)
+
+**Dinner**: Veg Biryani, Peanut butter, Cashews (Active)
+
