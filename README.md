@@ -242,7 +242,7 @@
 13. Set priority, and clarity.
 
 ## 09/28/2020
-**Workout**: BW movements
+**Workout**: BW movements, 8 miles biking
 
 **Breakfast**: Elixir, Avocado, Papaya, Watermelon, Protein Shake (Active, Energetic, Focused)
 
@@ -253,11 +253,24 @@
 **Dinner**: Yellow Moong Dal with Rice, Yogurt (Good digestion)
 
 ## 09/29/2020
-**Workout** Pre-run stretches, Run (4 miles), Post-run stretches, 45 minutes HIIT (Office organized)
+**Workout**: Pre-run stretches, Run (4 miles), Post-run stretches, 45 minutes HIIT (Office organized)
+
+**Push-Ups**: 55
 
 **Breakfast**: Elixir, Almonds, Watermelon, Papaya, Protein Shake (Active, Energetic)
 
 **Lunch**: Shrooms, Navratan Korma, Mix Veg with Naan, Gobi 65 (Very sleepy)
 
 **Dinner**: Veg Biryani, Peanut butter, Cashews (Active)
+
+## 09/30/2020
+**Workout**: BW movements, 8 miles biking
+
+**Push-Ups**: 45
+
+**Breakfast**: Elixir, Almonds, Watermelon, Papaya, Protein Shake, Cashews (Active, Energetic)
+
+**Lunch**: Bell Pepper and Potato with multi-grain roti (Active, Good digestion)
+
+**Dinner**: Mix vegetable with Naan, Grapes, Red berries, Peanuts (Good digestion)
 
