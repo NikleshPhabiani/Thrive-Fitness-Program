@@ -274,3 +274,14 @@
 
 **Dinner**: Mix vegetable with Naan, Grapes, Red berries, Peanuts (Good digestion)
 
+## 10/13/2020 (Week 7 Meeting Notes)
+1. Vision work. Vision without action is just a dream. Have a weekly, monthly vision. Pair vision and action. Habit of being specific brings clarity and helps you visualize. This helps make things real. Program the subconscious mind. So now, be specific with reading. Maybe 15 minutes a day to start with. Put it in the calendar. Associate it with a time and location.
+2. Do the 5 Why’s exercise from Week 6 contents.
+3. Go over leadership videos, and implement it.
+4. Share the movement videos from Week 6.
+5. Watch Simon Simmeck Ted talk.
+6. Family, Fitness, Finances, Faith, Fun. Rate each one of them, and how do feel about them. Get clear with what that rating looks like. Be specific. What is your cornerstone domain (most lacking with), and improve on that. This will directly impact you overall. Do something to advance each one. 
+7. Just be yourself always for creating a connection. Don’t have an attachment or expectations. Don’t expect but request. Energy is palpable. You feel it. Don’t take things personally.
+8. CHALLENGE: Post a LinkedIn story each day.
+
+
