@@ -284,4 +284,13 @@
 7. Just be yourself always for creating a connection. Don’t have an attachment or expectations. Don’t expect but request. Energy is palpable. You feel it. Don’t take things personally.
 8. CHALLENGE: Post a LinkedIn story each day.
 
+## 11/13/2020 (Week 10 Meeting Notes)
+1. Don Lee Farms Organic Superfoods Veggie burger sweet potato and sunflower seed oil.
+2. Drink a cup of pomegranate extract every day.
+3. Dark cherry (Juice pref), broccoli sprouts, Curcumen (Like turmeric).
+4. B12 is involved in the metabolism. A supplement would be good.
+5. Have that golden milk with turmeric, cinnamon, black pepper, maple syrup.
+6. Surround yourself with an environment that makes you keep doing (Writings on wall).
+
+
 
